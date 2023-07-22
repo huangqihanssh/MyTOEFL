@@ -43,3 +43,23 @@ https://www.bilibili.com/video/BV1iV411z7Nj?p=1&vd_source=93b3feb760982d7f2d2c49
 11月：1日 4日 11日 12日 15日 18日 22日 28日
 
 12月：2日 3日 6日 9日 16日 17日 20日 26日
+
+
+
+### TPO Practice Records
+
+#### Listening
+
+7S4
+
+17S4
+
+18S1
+
+21S1
+
+
+
+#### Reading
+
+8P3 Running Water on Mars
