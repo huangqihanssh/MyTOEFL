@@ -56,6 +56,8 @@ https://www.bilibili.com/video/BV1iV411z7Nj?p=1&vd_source=93b3feb760982d7f2d2c49
 
 21S1
 
+40S2
+
 
 
 #### Reading
